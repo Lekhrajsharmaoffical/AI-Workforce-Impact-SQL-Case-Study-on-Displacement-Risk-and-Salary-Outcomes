@@ -1,0 +1,1 @@
+# AI-Workforce-Impact-SQL-Case-Study-on-Displacement-Risk-and-Salary-Outcomes
